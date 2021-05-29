@@ -19,3 +19,6 @@ https://www.canva.com/design/DAEVUT6HslA/tbdbyITzamUidWfk-HcSug/view?utm_content
 
 7. Stashing:
 https://www.canva.com/design/DAEPsQa6BFE/uNs08sHSGN1XziSUt1BLHQ/view?utm_content=DAEPsQa6BFE&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+
+8. Undoing changes:
+https://www.canva.com/design/DAEPZZHOafo/uagxrNdvbI_wDpjfNpK_4w/view?utm_content=DAEPZZHOafo&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
