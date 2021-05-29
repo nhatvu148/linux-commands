@@ -43,3 +43,6 @@ https://www.canva.com/design/DAEV5aEpUOQ/lfUIjJz2atC6fGT9KOv2kg/view?utm_content
 
 15. Hashing:
 https://www.canva.com/design/DAEV-h9bSG4/R6FyldDe8CO8Wfn8z92yRA/view?utm_content=DAEV-h9bSG4&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+
+16. Reflogs:
+https://www.canva.com/design/DAEWorNx5_Q/piCbRO6BWwv9_ae_mahECA/view?utm_content=DAEWorNx5_Q&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
