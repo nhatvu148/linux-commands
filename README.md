@@ -16,3 +16,6 @@ https://www.canva.com/design/DAEUZEra8W0/b4I77uG1YJAu4q6UOTIG6Q/view?utm_content
 
 6. Compare changes:
 https://www.canva.com/design/DAEVUT6HslA/tbdbyITzamUidWfk-HcSug/view?utm_content=DAEVUT6HslA&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+
+7. Stashing:
+https://www.canva.com/design/DAEPsQa6BFE/uNs08sHSGN1XziSUt1BLHQ/view?utm_content=DAEPsQa6BFE&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
