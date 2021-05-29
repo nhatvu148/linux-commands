@@ -46,3 +46,6 @@ https://www.canva.com/design/DAEV-h9bSG4/R6FyldDe8CO8Wfn8z92yRA/view?utm_content
 
 16. Reflogs:
 https://www.canva.com/design/DAEWorNx5_Q/piCbRO6BWwv9_ae_mahECA/view?utm_content=DAEWorNx5_Q&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+
+17. Aliases:
+https://www.canva.com/design/DAEWcidQeSI/m6VuuSGBgvBNsRcxfweqDA/view?utm_content=DAEWcidQeSI&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
