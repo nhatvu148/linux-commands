@@ -25,3 +25,6 @@ https://www.canva.com/design/DAEPZZHOafo/uagxrNdvbI_wDpjfNpK_4w/view?utm_content
 
 9. Github:
 https://www.canva.com/design/DAEPtdekgz0/L9rfbid7gCFMGEZBLJcmlw/view?utm_content=DAEPtdekgz0&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+
+10. Fetching and pulling:
+https://www.canva.com/design/DAEPyYicrxQ/EaXIXD_WWryEq7Z7YUSVlg/view?utm_content=DAEPyYicrxQ&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
