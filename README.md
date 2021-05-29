@@ -1,3 +1,8 @@
+# Aliases:
+- https://www.durdn.com/blog/2012/11/22/must-have-git-aliases-advanced-examples/
+- https://github.com/GitAlias/gitalias
+- https://gist.github.com/mwhite/6887990
+
 # Git manuals:
 1. Installation and Setup:
 https://www.canva.com/design/DAEXMu7dx04/x1kkoUK-g_j6UtObmUwbDA/view?utm_content=DAEXMu7dx04&utm_campaign=designshare&utm_medium=link&utm_source=viewer
