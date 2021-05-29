@@ -40,3 +40,6 @@ https://www.canva.com/design/DAEVkyNcwWI/qt8pRN3JA1lP9ckYeImxeQ/view?utm_content
 
 14. Tag:
 https://www.canva.com/design/DAEV5aEpUOQ/lfUIjJz2atC6fGT9KOv2kg/view?utm_content=DAEV5aEpUOQ&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
+
+15. Hashing:
+https://www.canva.com/design/DAEV-h9bSG4/R6FyldDe8CO8Wfn8z92yRA/view?utm_content=DAEV-h9bSG4&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
